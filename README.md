@@ -1,2 +1,0 @@
-# Phatomix
-Credit by: @KairossReals
